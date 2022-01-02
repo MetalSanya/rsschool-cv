@@ -1,1 +1,1 @@
-# rsschool-cv
+https://MetalSanya.github.io/rsschool-cv/cv
